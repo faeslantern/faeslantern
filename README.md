@@ -1,7 +1,9 @@
 <p align="center">
 $\textcolor{#b78bde}{\textsf{┌────────────────────── ⋆⋅☆⋅⋆ ──────────────────────┐}}$ </p>
 
-
+WORK IN PROGRESS!!!!!!!!! 
+hi i kyrie/whatever character i am, my strawpage has lots of info about me 
+im too lazy to work on this rn
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=313bjeiidk57degtmysnhsqhkzea&redirect=true">
