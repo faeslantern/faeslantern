@@ -7,7 +7,7 @@ i am almost 20, so minors dni/minimal interaction please. i don't mind talking c
 
 currently fixated on: **honkai starrail, genshin impact**
 
-my strawpage has a ton more info about me and my interests if curious!
+my strawpage has a ton more info about me and my interests if curious! feel free to sign my atabook too
 
 **─────────**
 
