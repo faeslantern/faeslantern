@@ -5,7 +5,7 @@ hi i'm kyrie but i also appreciate being called whatever character my pony curre
 
 i am almost 20, so minors dni/minimal interaction please. i don't mind talking casually but please don't try to bmf.
 
-currently fixated on: **honkai starrail, genshin impact**
+currently fixated on: **honkai starrail, genshin impact** ... and danganronpa ... (i don't support im normal pls)
 
 my strawpage has a ton more info about me and my interests if curious! feel free to sign my atabook too
 
