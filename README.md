@@ -23,6 +23,8 @@ i'm very shy/awkward and have a hard time talking to new people. please don't be
 
 i block + hide freely
 
+dni goes both ways. don't be mad at me if i block you because you partake in something i don't agree with, just block me back and move on! thanks!
+
 
 **─────────**
 
