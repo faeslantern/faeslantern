@@ -9,6 +9,8 @@ currently fixated on: **honkai starrail, genshin impact**
 
 my strawpage has a ton more info about me and my interests if curious! feel free to sign my atabook too
 
+if you're the person who has been harassing my friend (puppysin) over his dni pls go get a job 
+
 **─────────**
 
 **byi:**
