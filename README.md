@@ -1,7 +1,7 @@
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/c0169084-6462-4d83-b905-1cd730cf6af4" />
 ───────────────────────────────────────────────────────────────────────────
 
-hi i'm kyrie but i also appreciate being called whatever character my pony currently is!
+hi i'm sunday/kyrie but i also appreciate being called whatever character my pony currently is!
 
 i am almost 20, so minors dni/minimal interaction please. i don't mind talking casually but please don't try to bmf.
 
