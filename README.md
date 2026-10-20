@@ -34,6 +34,8 @@ i block + hide freely
 
 basic criteria (transphobic/homophobic/racist/sexist etc.)
 
+terfs and transmeds 
+
 pro-/dark-/com- shippers + pro-fic/if you think fiction doesn't affect reality
 
 ppl who joke about rpe/diddy/the files
