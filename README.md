@@ -40,6 +40,7 @@ ppl who joke about rpe/diddy/the files
 
 weirdos in general. please just don't be weird (/neg) and we won't have problems
 
+rick and morty fandom... no rick and morty fan i've seen on pt has been a normal human pls just dni
 
 ───────────────────────────────────────────────────────────────────────────
 
