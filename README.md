@@ -21,7 +21,9 @@ whisper to interact otherwise i might miss it! i'm probably off-tab if i don't r
 
 happily taken, please <ins>don't</ins> flirt with me, even as a joke. c+h are all okay tho! plsplspls interact
 
-i'm very shy/awkward and have a hard time talking to new people. please don't be insulted if i seem standoffish or dry when talking.
+i'm reeeally shy/awkward and have a hard time talking to new people. please don't be insulted if i seem standoffish or dry when talking.
+
+i'm very cautious about making friends on pt 
 
 feel free to take inspo from my skins, idc
 
