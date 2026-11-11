@@ -1,15 +1,13 @@
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/c0169084-6462-4d83-b905-1cd730cf6af4" />
 ───────────────────────────────────────────────────────────────────────────
 
-hi i'm sunday/kyrie but i also appreciate being called whatever character my pony currently is!
+hi i'm kyrie! you can also call me by whatever character my pony is, currently struggling on picking a name 💔
 
 i am almost 20, so minors dni/minimal interaction please. i don't mind talking casually but please don't try to bmf.
 
-currently fixated on: **honkai starrail, genshin impact** 
+currently fixated on: **chainsaw man, persona 5** (+ hsr/genshin)
 
 my strawpage has a ton more info about me and my interests if curious! feel free to sign my atabook too
-
-if you're the person who has been harassing my friend (puppysin) over his dni pls go get a job 
 
 **─────────**
 
@@ -25,10 +23,7 @@ i'm reeeally shy/awkward and have a hard time talking to new people. please don'
 
 i'm very cautious about making friends on pt 
 
-feel free to take inspo from my skins, idc
-
 i block + hide freely
-
 
 **─────────**
 
